@@ -25,10 +25,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⠀⣰⣿⡟⠀⢀⣴⣿⣿⣿⣿⣿⣿⣿⣿⣿⠟⠁⠀⠀⠀
 </pre>
 
-**true-utopian**
-
 red team researcher
-
-<sub><a href="https://emojicombos.com/urabe">art</a></sub>
 
 </div>
